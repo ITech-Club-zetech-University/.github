@@ -24,7 +24,7 @@ Project maintainers are responsible for:
 
 ## Enforcement
 Instances of unacceptable behavior can be reported to:  
-**[yourclub-email@school.edu]**  
+**THE SCHOOL ADMIN**  
 All complaints will be reviewed fairly.
 
 ## Attribution
